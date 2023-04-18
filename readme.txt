@@ -1,1 +1,1 @@
-Wist je dat de aansteker al werd uitgevonden voor de lucifers?
+Wist je dat Coca-Cola vroeger cocaïne bevatte?
